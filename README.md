@@ -1,4 +1,6 @@
-## Hi there 👋
+![image](https://github.com/user-attachments/assets/4d40672d-2fd0-4bb0-94db-4c3789c83417) 
+
+don't copy my skins please <3
 
 <!--
 **fourhundredroses/fourhundredroses** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
