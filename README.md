@@ -2,6 +2,7 @@
 
 don't copy my skins please <3
 
+hyperfixated on fanganronpas rn sorry
 <!--
 **fourhundredroses/fourhundredroses** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
