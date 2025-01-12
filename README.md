@@ -2,7 +2,7 @@
 
 don't copy my skins please <3
 
-hyperfixated on fanganronpas rn sorry
+hyperfixated on fanganronpas rn sorry (drdt, p:eg, uzujigoku massacre, tetro dr)
 <!--
 **fourhundredroses/fourhundredroses** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
