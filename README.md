@@ -3,6 +3,8 @@
 don't copy my skins please <3
 
 hyperfixated on fanganronpas rn sorry (drdt, p:eg, uzujigoku massacre, tetro dr)
+
+limbus company is my special interest though, please talk to me about it!!
 <!--
 **fourhundredroses/fourhundredroses** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
